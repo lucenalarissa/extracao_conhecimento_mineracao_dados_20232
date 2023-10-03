@@ -1,0 +1,1 @@
+# extracao_conhecimento_mineracao_dados_20232
